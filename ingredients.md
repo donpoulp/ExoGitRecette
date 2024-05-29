@@ -6,3 +6,4 @@
 - 100g de chocolat noir
 - 1 cuillère à café de sel
 - 1 cuillère à café de levure chimique
+- 2 litre de boufe tes morts
